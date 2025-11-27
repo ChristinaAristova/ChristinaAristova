@@ -41,5 +41,5 @@
 
 *   **Email:** daritakarador@yandex.ru
 *   **Telegram:** @daritaray
-* **HH.ru:** *[Ссылка будет добавлена позже]*
+* **HH.ru:** [Младший тестировщик](https://nn.hh.ru/resume/3c91248aff0f8859530039ed1f49626e4f4475)
 
